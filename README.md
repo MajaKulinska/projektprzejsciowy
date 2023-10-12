@@ -1,0 +1,2 @@
+# projektprzejsciowy
+Repozytorium - Projekt przejściowy
